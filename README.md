@@ -12,6 +12,8 @@ A continuacion les dire lo que me gusta hacer y algo sobre mi :
 - 🎼 Por ahora el unico instrumento que se tocar es la guitarra 🎸
 - 💬 Contactame : marcelojaramillo299@gmail.com
 
+Repositorio muy recomendado ⭐⭐⭐⭐⭐
+
 
 
 ### Puedes encontrarme en: 
